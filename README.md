@@ -12,4 +12,8 @@
  
 
 ### Connect with me:
+-  Facebook
+-  YouTube
+-  Twitter
+-  Instagram
 
